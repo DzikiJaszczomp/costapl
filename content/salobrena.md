@@ -1,83 +1,112 @@
-# Salobreña. The Costa Tropical
+Domy i mieszkania w Andaluzji. Hiszpania
 
-*Sun, blue skies, sea, mighty mountains - the Sierra Nevada at your fingertips, tropical vegetation is
-the landscape of the Costa Tropical in the province of Granada in Spanish Andalusia. If you add to
-this a hill that drops almost into the sea, studded with white houses with a Moorish castle on top,
-then Salobreña.*
+Kupujemy lub wynajmujemy mieszkanie na najcieplejszym wybrzeżu Hiszpanii. Zima w Hiszpanii.
+Andaluzja, Costa Tropical na zimę. Gdzie jesienią i zimą jest ciepło? Hiszpania, Andaluzja przez cały rok.
+Jak zorganizować sobie pobyt nad morzem w Hiszpanii? Hiszpania, Morze Śródziemne, gdzie pojechać?
 
-Salobreña is a small town of around 13,000 permanent inhabitants and is one of the most popular
-holiday centers on the Costa Tropical. This part of the coast is smaller, more intimate than the
-neighboring Costa del Sol to the west. The name Tropical Coast is meant to suggest higher
-temperatures throughout the year. Its excellent tropical climate, with temperatures ranging from 15
-to 32 degrees, attracts tourists all year round.
-The seaside resort area is not large, neighboring similar districts in Motril and Almuńecar. Here you
-won't find the large hotels and high-rise buildings known even from the Costa del Sol. The
-predominant areas are cosy two-story houses close to the beach and white terraced houses with
-internal patios. It is close to everywhere. A promenade runs along the coast.
+**Wynajmujemy**
 
-Salobreña has its origins in Phoenician times. Founded as a trading colony, it was also inhabited by
-Romans and Arabs until it was recaptured by the Catholic Kings. Pirate attacks meant that the town
-was surrounded by walls and its inhabitants chose safer places in the mountains.
-The impressive rock is crowned by an Arab castle from the 13th century. The stone and brick walls,
-towers and tower dominate the whole of Salobreña. This defensive structure was built by the
-Romans and extended by the Arabs. At the foot of the Great Rock on which it stands, there are
-streets with whitewashed facades, so typical of the Muslim tradition. Another interesting building is
-the church of Nuestra Señora del Rosario, built on an old mosque in the 16th century.
-Various districts of the town, such as La Loma, La Fuente, El Brocal and Albaycín, have medieval
-corners. A walk through these areas will give the traveller an idea of what the town was like in the
-old days.
+Jeszcze kilka, kilkanaście miesięcy temu, wczesną jesienią, właściciele domów i mieszkań na
+nadmorskim wybrzeżu zamykali je na głucho i czekały one do lata, ewentualnie wpadano tu na weekendy
+od czasu do czasu. Teraz nadmorskie miejscowości żyją przez cały rok, choć nie tak intensywnie jak
+latem. Coraz więcej osób: Hiszpanów, Brytyjczyków, Niemców, Skandynawów chce spędzić zimę na
+najcieplejszym wybrzeżu Hiszpanii.
 
-The intimate beaches of Salobreña are very well-kept and have excellent infrastructure. You will
-also find wilder beaches on the outskirts of the town. Salobreña also has many interesting coves.
-The natural bays of El Caleton or El Pargo, which can be reached on foot, offer crystal clear water
-and recreational opportunities such as scuba diving.
+Popyt na mieszkania pozasezonowe kreuje podaż. Oferta mieszkań wynajmowanych w okresie od
+września do końca czerwca, a jeszcze częściej od początku października do końca maja jest spora. Można
+je wynająć na cały ten czas lub jego część. Z drugiej strony popyt jednak rośnie i znalezienie
+odpowiedniego lokum nie jest już tak proste, jak kiedyś i tak tanie. Trzeba wiedzieć gdzie i jak szukać.
+Przedstawiając po krótce możliwości wynajmu posezonowego, bierzemy pod uwagę nadmorskie rejony
+Almuńecar, Salobreńy, Motrliu (100-300 m od morza) oraz rozsądne ceny, bo te są zróżnicowane.
+Najlepiej wynajmować bez pośrednictwa agencji nieruchomości, bo te kasują równowartość miesięcznego
+czynszu, a niewiele pomagają.
 
-![This is an image](/img/salzachieski-kopia.jpg)
-![This is an image](/img/sal.placJPG-kopia.jpg)
+Wynajęcie apartamentu z dwoma sypialniami to koszt około 450 – 600 euro miesięcznie. Trzy sypialnie
+kosztują 500 – 750 euro, a domek z 4 sypialniami około 700 - 800 euro. Zdarzają się tańsze propozycje,
+więcej jednak jest droższych lub dużo droższych z cenami dla zamożnych Brytyjczyków, czy Niemców.
+Kaucja zwrotna wynosi równowartość jednego lub dwóch czynszów. Opłaty miesięczne, na przykład dla
+czteroosobowej rodziny (niezbyt oszczędnej): prąd – 40-60 euro miesięcznie, gaz – 30-40 euro
+miesięcznie, woda – około 20 euro, śmieci – około 5 euro, internet – 25-30 euro miesięcznie. Ogrzewania
+najczęściej nie ma. Zimą może być dość chłodno w domu, wtedy, gdy świeci słońce, jest cieplej na
+zewnątrz niż w mieszkaniu.
 
-![This is an image](/img/sal_skimo-kopia.jpg)
-![This is an image](/img/sal_kolor-kopia.jpg)
-![This is an image](/img/Salob11-kopia.jpg)
-![This is an image](/img/Salob12-kopia.jpg)
-![This is an image](/img/Salob7-kopia.jpg)
-![This is an image](/img/goorka2.jpg)
+*** Kupujemy dom lub apartament**
 
-Author of all images: 
+W ostatnich latach wielu Polaków decyduje się na kupno mieszkania na jednym z hiszpańskich wybrzeży.
+Najczęściej Polacy wybierają miejsca w których są już inni rodacy, a kupno nieruchomosci niekiedy
+traktują stricte inwestycyjnie.
+To się jednak zmienia. Coraz więcej osób dociera na Costa Tropical (społeczność polska liczy
+kilkadziesiąt osób) i do Alpuhary. Przyciągają ich uroki tych miejsc oraz niskie ceny nieruchomości oraz
+
+takież koszty życia. Dotyczy to także innych expatów. Sporo mieszka tu Brytyjczyków, Niemców,
+Skandynawów i Holendrów.
+
+Niezależnie, czy wynajmujemy, czy kupujemy coraz częstszym zjawiskiem jest zimowanie na Costa
+Tropical i wyjazd do kraju macierzystego na letnie miesiące. Zaletą z posiadania apartamentu jest
+wówczas taka, że można sporo zarobić wynajmując go na lipiec i sierpień. Koszt wynajmu większego
+apartamentu to minimum 1000 euro za dwa tygodnia (to bardzo okazyjna cena).
+Podaż nieruchomości jest spora, popyt też nie mały.
+
+Co można kupić?
+
+Najtaniej jest w Alpuharze, czyli górzystym rejonie oddalonym o kilka, kilkanaście kilometrów od
+wybrzeża (bierzemy pod uwagę tylko bliską Alpuharę).
+W bliskiej Alpuharze niezły dom można kupić za 60-70 tys. euro. Ładny dom w Solviran z pięcioma
+sypialniami i imponującymi widokami z tarasów na góry i morze wyceniono na 92 tys. euro. Niewielki
+dwupokojowy domek w tej samej miejscowości kosztuje 30-40 tys. euro.
+Mieszkanie z 3 sypialniami w nadmorskich miejscowościach kosztuje najczęściej od 80 do 160 tys. euro.
+Nad samym morzem cena jest o ok. połowę wyższa.
+Trzeba pamietać, że w ogłoszeniach podaje się liczbę sypialni. Jeśli jest to np. 2 dormitorios/bedrooms
+oznacza to, że mieszkanie ma 2 sypialnie i salon.
+Mądrości eksperckie z różnych forów, dotyczące rad przy kupowaniu nieruchomości głoszą między
+innymi, że należy unikać dzikich pośredników, załatwiaczy, Polek skądś tam, czy innych Wojtków z
+Andaluzji, nawet jeśli brylują w telewizjach śniadaniowych. Domy i mieszkania kupuje się za
+pośrednictwem licencjonowanych agencji. Jeśli kupujemy bezpośrednio od właściciela, warto
+skonsultować się z prawnikiem. Problemem może być język, ale z tym można sobie poradzić. Nie chodzi,
+że ktoś nas będzie chciał oszukać, tylko o sprostanie wymaganiom prawnym, formalnym i podatkowym.
+Warto wcześniej przyjechać, choć na krótko, popatrzeć, prawie każde miejsce jest inne. W końcu
+natrafimy na: tu i tylko tu!!!
+
+## Jak mogę pomóc?
+
+Przedstawię kilka propozycji mieszkań i apartamentów na wynajem, zgodnie z preferencjami. Pomogę je
+zarezerwować i wynająć.
+Odbiorę z lotniska w Maladze i zawiozę do apartamentu. Ewentualnie pomogę w wynajęciu samochodu,
+przedstawiając oferty najkorzystniejsze cenowo i bezpiecznie. Mogę również pomóc zakupić bilet
+autobusowy.
+Pomogę w zagospodarowaniu się na miejscu: rekonesans po mieście, informacje, zamówię media: gaz,
+internet, pomogę zrobić pierwsze zakupy. Przez cały czas będę służyć informacją i pomocą.
+
+Ile to kosztuje?
+
+W najdroższej, pełnej wersji, łącznie z transferem z lotniska (w jedną stronę) koszt pakietu wynosi 300
+euro. Im mniejszy jest pakiet, tym cena jest niższa.
+Rekonesans
+
+Najlepiej przekonać się, czy warto tu zamieszkać, przyjeżdżając choćby na kilka dni. Jeśli chcesz
+zorientować się, czy i jak zamieszkać na Costa Tropical lub zwyczajnie spędzić tu trochę czasu, także
+mogę pomóc.
+Znajdę mieszkanie, najlepszą ofertę wypożyczenia samochodu lub odbiorę z lotniska. Na miejscu służę
+jako przewodnik i konsultant.
+Pełny pakiet, łącznie z transferem w obie strony kosztuje 300 euro. Obejmuje też całodniowy study tour
+po miejscowościach Costa Tropical w poszukiwaniu wymarzonego miejsca. Ponadto wstępne
+poszukiwania mieszkania, czy domu. Im niej usług, tym tańszy pakiet, np. bez transferów cena wynosi
+150 euro.
+
+Koszty są skalkulowana dla grup od 1 do 4 osób, niezależnie od liczby osób (maksymalnie 4) będzie
+wynosić tyle samo. Możliwe jest również przygotowanie oferty dla liczniejszej grupy.
+Chętnie odpowiem na pytania i udzielę informacji, kontakt:
 
 Piotr Janczarek
 
+allpress.piotr.janczarek@gmail.com
+
+tel./WhatsApp: +48 604 201 109
+
+tel. +34 654 110 418
 
 
-RECOMMENDED
-
-Salobreña guided Free Tours in Spanish and English.
-
-Invite you to a wonderful walk through the ancient Moorish castle of Salobreña and its old town where
-centuries ago the kings of the Alhambra themselves walked. The castle of Salobreña was in fact their
-place of retreat and rest, for a reason! Come and learn about the Legend of the Three Fair Princesses and
-The Rose of the Alhambra by Washington Irving and the beautiful local legend of the Messenger Butterfly
-whose outcome will surprise you.
-
-The tour includes:
-
-* Moorish castle (10th century)
-* Mudejar church (16th c.)
-* Medieval vault (XVI c.)
-* A walk through the viewpoints overlooking the Mediterranean in the old Nasrid quarter (Enrique
-Morente, Boquete de la Frascunda,...)
-* Paseo de las Flores
-* Local archaeological museum
-
-All this accompanied by the stories and legends of each place that will make the Free Tour an enchanting
-experience. You will also be able to taste the flavour of sugar cane, as a small tasting of the local sugar
-cane liquor from the local winery Ron El Mondero is included.
-
-Whatsapp +34 691 319 996, 
-
-e- mail: salobrenafreetour@gmail.com
-
-![boveda](/img/boveda.jpg)
-![This is an image](/img/SFT_widok.jpg)
-![This is an image](/img/SFTwid2.jpg)
-
-photo Salobnrena Free Tour
+![Chirimoya](/img/domki.jpeg)
+![Chirimoya](/img/widzokn.jpeg)
+![Chirimoya](/img/widzok3.jpeg)
+![Chirimoya](/img/zachod.jpg)

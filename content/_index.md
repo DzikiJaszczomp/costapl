@@ -2,7 +2,7 @@
 [banner]
   [[banner.button]]
       url = "/contact"
-      text = "Welcome"
+      text = "Witam"
       type = "primary"
 
   [[banner.button]]
@@ -24,7 +24,7 @@
     icon = "fa-mug-hot"
     icon_pack = "fas"
     accent = "1"
-    title = "Motril"
+    title = "Costa Tropical o każej porze roku"
     text = "loremipsum"
     url = "/kids"
 
@@ -32,7 +32,7 @@
     icon = "fa-lemon"
     icon_pack = "fas"
     accent = "2"
-    title = "Salobreña"
+    title = "Wynajmujemy / kupujemy dom"
     text = "Salobreña"
     url = "/salobrena"
 
