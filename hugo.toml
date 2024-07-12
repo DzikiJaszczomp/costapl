@@ -115,37 +115,11 @@ enableInlineShortcodes = true
     weight = 1   
 
   [[menu.main]]
-    name = "For Pets"
+    name = "Ceny"
     url = "/forpets"
     weight = 1
 
-  [[menu.main]]
-    name = "Motril for pets"
-    parent = "For Pets"
-    url = "/forpetsmotril"
-    weight = 1 
-
-
    [[menu.main]]
-    name = "Salobreña for pets"
-    parent = "For Pets"
-    url = "/forpetssalobrena"
-    weight = 1  
-
-
-   [[menu.main]]
-    name = "Almuñécar for pets"
-    parent = "For Pets"
-    url = "/forpetsalmunecar"
-    weight = 1  
-
-
-   
-
- 
-
-
-  [[menu.main]]
     name = "Witam"
     url = "/contact"
     weight = 4
