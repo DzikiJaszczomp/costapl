@@ -11,7 +11,7 @@
 
 #Details for the box below the banner
 [services]
-  title = "Costa Tropical. Why visit?"
+  title = "Na tydzień, miesiąc, na stałe"
   text = " [Salobreña](https://www.openstreetmap.org/#map=19/36.74644/-3.58682)."
   map_location = "Salobreña"
 
@@ -33,15 +33,15 @@
     icon_pack = "fas"
     accent = "2"
     title = "Wynajmujemy / kupujemy dom"
-    text = "Salobreña"
+    text = "Wynajmujemy / kupujemy dom"
     url = "/salobrena"
 
   [[feature_icons.tile]]
     icon = "fa-comments"
     icon_pack = "fas"
     accent = "5"
-    title = "Almuñecar"
-    text = "Almuñecar guide"
+    title = "Nasze wycieczki"
+    text = "Nasze wycieczki"
     url = "/almunecar"
 
   [[feature_icons.tile]]
