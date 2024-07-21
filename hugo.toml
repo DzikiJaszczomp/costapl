@@ -30,65 +30,9 @@ enableInlineShortcodes = true
 
 
 
+    
 [[menu.main]]
-    name = "Tourist services"
-    url = ""
-    weight = 1
-
-
- [[menu.main]]
-    name = "Bike"
-    parent = "Tourist services"
-    url = "/bike"
-    weight = 1
-
- [[menu.main]]
-    name = "Water"
-    parent = "Tourist services"
-    url = "/water"
-    weight = 1   
-
-
-
-[[menu.main]]
-    name = "Our Tours"
-    url = "/ourtours"
-    weight = 1
-  
-
-[[menu.main]]
-    name = "Po polsku"
-    url = "/"
-    weight = 1
-
-    [[menu.main]]
-    name = "Costa Tropical"
-    parent = "Po polsku"
-    url = "/salobrenapl"
-    weight = 1 
-
-  
-[[menu.main]]
-    name = "Praktycznie"
-    parent = "Po polsku"
-    url = "/costatropicalpl"
-    weight = 1   
-
-
-[[menu.main]]
-    name = "Na zimę"
-    parent = "Po polsku"
-    url = "/zima"
-    weight = 1    
-
-[[menu.main]]
-    name = "Ceny"
-    parent = "Po polsku"
-    url = "/ceny"
-    weight = 1       
-
-  [[menu.main]]
-    name = "Flavours of the Costa Tropical"
+    name = "Smaki Costa Tropical"
     url = "/"
     weight = 1
 
@@ -115,14 +59,11 @@ enableInlineShortcodes = true
     weight = 1   
 
   [[menu.main]]
-    name = "Ceny"
-    url = "/forpets"
+    name = "Czy jest tu drogo?"
+    url = "/ceny"
     weight = 1
 
-   [[menu.main]]
-    name = "Witam"
-    url = "/contact"
-    weight = 4
+   
 
 # Paramaters for the whole site
 [params]

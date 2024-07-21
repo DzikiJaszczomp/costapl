@@ -7,7 +7,7 @@
 
   [[banner.button]]
       url = "offer"
-      text = "Offer"
+      text = "Blog"
 
 #Details for the box below the banner
 [services]
@@ -25,7 +25,7 @@
     icon_pack = "fas"
     accent = "1"
     title = "Costa Tropical o każej porze roku"
-    text = "loremipsum"
+    text = "Costa Tropical na każdą porę roku. Zima w Hiszpanii"
     url = "/kids"
 
   [[feature_icons.tile]]
@@ -48,8 +48,8 @@
     icon = "fa-heartbeat"
     icon_pack = "fas"
     accent = "3"
-    title = "How to get, where to stay?"
-    text = "Practical information"
+    title = "Jak dojechać, gdzie się zatrzymać?"
+    text = "Praktyczne informacje"
     url = "/howtoget"
 
 [feature_images]
@@ -58,17 +58,17 @@
 
   [[feature_images.tile]]
     image = "img/caleta.jpg"
-    title = "Senderismo – walking tourism"
-    text = "Guide to tourist routes"
+    title = "Costa Tropical"
+    text = "Najcieplejsza Hiszpania"
     url = "/senderismo"
-    button_text = "Learn more"
+    button_text = "Więcej"
 
   [[feature_images.tile]]
     image = "img/konieimorze3.jpg"
-    title = "From Costa Tropical for a day"
-    text = "Points of interest. Tips for trips"
+    title = "Sierra Nevada"
+    text = "Narty i trekking"
     url = "/trips"
-    button_text="Join a group today!"
+    button_text="Więcej"
 
 [CTA]
   enable = true
