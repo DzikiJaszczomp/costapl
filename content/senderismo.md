@@ -1,128 +1,224 @@
----
-title: "Senderismo"
-subtitle: ""
-date: 2023-12-02T13:49:50+10:00
-images: [""]
-tags: ""
-draft: false
----
-# Enjoy the trail Motril, Salobreña and Almuñécar
 
-*The Mediterranean coastal walk route links the towns of Motril, Salobreña and Almuñécar and runs
-parallel to the coastline.* 
+# Costa Tropical. Najcieplejsza Hiszpania
 
-There are sections of the walk which pass through the old cattle path, “Colada de
-la Costa a la Sierra” that connected the coastal area with the neighbouring Sierras and which led cattle-
-herds to mountain pastures. This is a steep section of the coastline with ravines and watercourses that
-plunge to sea-level and the entire route is dotted with watchtowers.
+Hiszpania, Andaluzja, Malaga, plaże, słoneczne wybrzeże
 
-**The first stage**
+## Z Malagi w dalszą drogę
 
-## Motril  Salobreña
+Co miesiąc nie tylko latem, na lotnisko w Maladze samoloty przywożą kilkanaście tysięcy, a nawet więcej
+turystów z Polski. Nieco mniejszym, ale też bardzo dużym zainteresowaniem cieszą się loty Sewilli,
+innego andaluzyjskiego kierunku. Zdecydowana większość przybywających do Malagi kieruje się później
+na Zachód do miejscowości i plaż na Costa del Sol.
 
-Approximately 1,5 hour
+Najcieplejsze wybrzeże kontynentalnej Hiszpanii
 
-Coastal walking route. We start at Playa Granada in Motril.
-We move along the beach towards Salobreña. A very pleasant coastal walk awaits us. The beach and the
-surrounding area looks quite wild, with no tourist infrastructure or anything else. The wilderness is
-interesting.
+Tymczasem na Wschód od Malagi znajduje się inny bardzo ciekawy region: Costa Tropical. Jest to część
+wybrzeża Morza Śródziemnego znajdująca się w prowincji Granada. Port lotniczy od pierwszych
+miejscowości tropikalnego wybrzeża dzieli około 70 km, ostatnich około 130 km.
 
-After about an hour's walk you will find yourself near a concrete breakwater. Turn onto the path and
-follow the road straight ahead. We reach the flyover. You have to climb it, following the road on the right.
-The designer of this structure must have hated pedestrians.
-We walk along the viaduct parallel to the sea. Go down at its end and turn left onto the first path you
-encounter.
-After a while, we reach the seaside promenade in Salobreña. We finish the route at the Rock (El Peñon),
-after about 15 minutes of walking.
+Już sama nazwa regionu brzmi niezwykle obiecująco. Jest to najcieplejsze wybrzeże kontynentalnej
+Hiszpanii. Turyści i liczni ekspaci cenią sobie doskonały klimat tropikalny, z temperaturami od 15 do 32
+stopni. Lato trwa tu przez ponad pół roku, a o każdej porze jest ciepło, temperatury w styczniu, czy lutym
+nieraz przekraczają 20 stopni.
 
-**Download guide (PDF)**
-[DOWNLOAD](https://drive.google.com/file/d/1B_REATyhOAr88P_5vrxQFnq4QT8bshsc/view?usp=sharing)
+Nie tyko turyści wybierają Costa Tropical. Jest ono popularnym miejscem na spędzenie tu zimy, wielu
+kupuje domy i mieszkania, które są zdecydowanie tańsze w sąsiedniej Costa del Sol. Ogólnie, życie nie
+jest tu drogie, a wybór nieruchomości spory.
 
+## Costa del Sol, czy Costa Tropical?
 
-![This is an image](/img/M-plaza2JPG-kopia.jpg)
-![This is an image](/img/M-plaza4-kopia.jpg)
+Dlaczego więc turyści częściej wybierają zatłoczoną Costa del Sol? Przede wszystkim dlatego, że jest
+bardziej znana i większa. Costa Tropical jest znacznie bardziej kameralna, mało jest hoteli – resortów, nie
+ma turystów „czarterowych”, goście mieszkają głównie w apartamentach, willach, pensjonatach.
+Infrastruktura jest jednak bardzo dobrze rozwinięta, miejscowości i plaże są wyjątkowo zadbane, a oferta
+gastronomiczna i rozrywkowa niezwykle bogata. Ponadto mamy wybór, czy zamieszkać nieco na
+odludziu, czy w centrum bardziej tętniącego życiem kurortu, jak Almuñecar.
+Można powiedzieć, że jest to miejsce trochę dla koneserów, mniej popularne niż sąsiednie wybrzeże.
 
-**The second stage**
+![Chirimoya](/img/Salob12-kopia.jpg)
 
-### Salobreña  Almuñécar (hotel Salobreña)
+## Dlaczego Costa Tropical?
 
-![alt](/img/widnaszlak-kopia.jpg)
+### Wyjątkowy klimat
 
-*A fairly easy route, but requires at least some physical fitness. On the trail, we will enjoy the
-magnificent views. We will also see historic watchtowers.*
+Unikalny, subtropikalny klimat Costa Tropical jest wynikiem bezpośredniego kontaktu lądu z Morzem
+Śródziemnym. Góry Sierra Nevada i Lújar chronią to miejsce od północnych wiatrów.
 
-The starting point is the Rock (El Peñon) on the beach. After about 15 minutes of walking we reach La Caleta. It is a small
-picturesque village perched on a hill. The area around La Caleta is quite sweet, it was built around the Guadalfeo Sugar
-Mill that opened in 1861. The Guadalfeo Factory still stands today in the La Caleta area. It has been given a cultural
-designation by the Spanish government and is protected due to the interest in its old machinery. It is currently closed to
-the public. Sugar production on the Costa Tropical was started by the Moors. Because of the warm tropical climate and
-access to water, this area was perfect for sugar cane cultivation. Until more recently, sugar cane production was a very
-important part of the local economy, as it had been for over the last 1000 years.
+![Chirimoya](/img/szlaknadm-kopia.jpg)
 
-![El Penon](/img/skala-kopia.jpg)
+### Morze i plaże
 
-**El Peñon** 
+Na wybrzeżu Costa Tropical znajdziemy ponad 60 plaż wzdłuż 73 km linii brzegowej. Będą to zarówno
+plaże z rozbudowaną infrastrukturą i bogatą ofertą gastronomiczną, jak też miejsca kameralne, niezwykle
+urokliwe z ukrytymi zatoczkami, surowymi klifami. Jest to też idealne miejsce do uprawiania wszelkiego
+rodzaju sportów, w tym nurkowania i snorkelingu, windsurfingu, lotniarstwa i paralotniarstwa.
+Plaże Costa Tropical są bardzo wysoko klasyfikowane pod względem czystości wód oraz samego
+nabrzeża.
 
-![This is an image](/img/Caleta1-kopia.jpg)
+![Chirimoya](/img/SalobCalet-wid-kopia.jpg)
 
-**La Caleta**
+### Góry Sierra Nevada
 
-![This is an image](/img/szlaknadm-kopia.jpg)
+Z jednej strony mamy morze, a z drugiej imponujące szczyty masywu górskiego Sierra Nevada.
+Najwyższe góry przekraczają wysokość 3 tys. metrów nad powierzchnią morza. W linii prostej dzieli je
+od wybrzeża kilkadziesiąt kilometrów, a drogą około 90 km. W Sierra Nevada działa największy na
+południu Europy ośrodek narciarski – ponad 100 km tras. Z narciarskich stoków widać nie tylko morze,
+ale niekiedy też afrykańskie wybrzeże. Czy można więc jednego dnia jeździć na nartach i plażować? Tak
+można.
 
-![This is an image](/img/widok-kopia.jpg)
+![Chirimoya](/img/gory.jpg)
 
-It is worth stopping by La Caleta for a while. After seeing the village, we return to the beach.
-We move on from the small seafront promenade. Here begins an extremely charming stone path along the
-sea with distinctive black rocks. You have to be careful. If conditions are inconvenient or we are walking
-with children or a dog, we can take an alternative route. From La Caleta we walk towards the road, but we
-do not come to the road itself, but turn into a dirt track that used to be used to drive cattle.
-On the premises of the Salobrena hotel there is a watchtower. (Access is via the interior of the hotel). It is
-a tall, narrow, cylindrical tower consisting of two storeys and a platform. Its construction is of solid, base
-with a conical shaped finishing, two metres high. The door is located in the lower chamber at a
-considerable height from ground level and faces north. These watchtowers were built to guard the
-coastline, in search of enemy ships and warn the people of a potential attack by sending out fire or smoke
-signals. This particular watchtower is an example of a Nasrid building (13th to 15th centuries).
+### Widoki
 
-Download guide (PDF) [DOWNLOAD](https://drive.google.com/file/d/1z_GcfeXSqnoSpxrwjLdFqffZ7dMOUfsO/view?usp=sharing)
+Wysokie góry otaczają morski brzeg, ziemia tarasowo schodzi do morza. Miejscowości Costa Tropical i
+samo wybrzeże wspaniale prezentują się zarówno gdy podziwiamy panoramę z góry, jak też patrząc na
+góry od strony morza. Widoki są niesamowite, także nocą, gdy miasta i domy na wzgórzach mienią się
+tysiącami świateł. Spójrzmy na Salobreñę, z jednej strony morze, z drugiej Sierra Nevada, a w centrum
+miasto na skale z górującym nad nim mauretańskim zamkiem. Trudno dziwić się, że ulubioną rozrywką
+turystów i mieszkańców jest podziwianie widoków, a zwłaszcza zachodów słońca i niezwykłych barw
+jakimi obfituje.
 
-Now we have to make a decision.
-We return to Salobreña by the same route or continue to Almuñecar. From Almuñecar we can return by
-bus (Alsa) or by taxi. Note: If we are accompanied by a dog we are unlikely to return by public transport
-(a pet up to 10 kg can go in the.... luggage compartment), or by taxi.
+![Chirimoya](/img/Alm_plaza3-kopia.jpg)
 
- #### **Costa Tropical fruit route**
+![Chirimoya](/img/Salob7-kopia.jpg)
 
-Start point: Salobreña bus station. The walk takes about 3 hours round trip.
+### Otoczenie. Alpuhara (Alpujarra)
 
-Costa Tropical is a benchmark in Europe for subtropical crops. The region's climate is one of a kind in
-Europe and was found to be perfect for growing these fruits: mango, chirimoya, custard apple, avocado
-and loquats; and other more exotic ones, such as guavas, lychees, dragon fruit, star fruit and kumquat. The
-unique climate of the Costa Tropical is a result of the direct contact of the land with the Mediterranean
-Sea, and the fact that it is protected by the mountains of Sierra Nevada and Lújar from the north winds
-and from the influence of the winds that come from the northernmost part of Africa. This creates a
-subtropical microclimate with more than 300 days of sunshine a year and an average yearly temperature
-of 20 degrees Celsius.
+Tropikalne wybrzeże otaczają wysokie góry Sierra Nevada, ale między nimi, a linią brzegową znajduje się
+historyczny i przyrodniczy region Alpuhara. Ten region to góry oraz bardzo charakterystyczne
+miejscowości z białymi domkami, mauretańskimi zamkami i pozostałościami akweduktów. Idealne
+miejsce nawet na kilkugodzinną wycieczkę.
 
-Enjoy a walking tour from Salobreña to the town of Lobres, along the trail of tropical fruit plantations.
-
-Download guide (PDF) [DOWNLOAD](https://drive.google.com/file/d/1kbY-4TzFLQ_lku73s9JX1Jtyi4mL00mR/view?usp=sharing)
+### Historia i zabytki
 
 
-![This is an image](/img/naszlaku-kopia.jpg)
-![This is an image](/img/IMG_awokado1383-kopia.jpg)
-![This is an image](/img/banany2jpg-kopia.jpg)
+Główne miasta Costa Tropical mają historię przekraczającą tysiąc lat. Sięgają czasów rzymskich, ale
+największy rozkwit zanotowały w czasach mauretańskich. Zadziwiająco wiele pamiątek zostało po
+tamtych czasach, nie tylko zamki, czy warownie, ale też charakterystyczna zabudowa, układ
+urbanistyczny miejscowości. W każdej z tych miejscowości jest wiele do zobaczenia.
+##Smaki Costa Tropical
+Costa Tropical smakuje i pachnie tropikalnymi owocami, winem, tradycyjnym rumem, morzem i jego
+owocami.
 
-**Cherimoya**
+### Tropikalne owoce
 
-![This is an image](/img/czeremoja-kopia.jpg)
+Jest to jedyne miejsce w Europie, gdzie uprawia się owoce tropikalne. Klimat regionu jest idealny do
+uprawy tych owoców: mango, chirimoya, awokado, banany, mandarynki, pomarańcze, kumkwaty, smocze
+owoce, papaja, guawa, liczi i inne. Świeże owoce możemy kupić w lokalnych sklepach – fruteriach lub
+bezpośrednio na farmie. Więcej o tym w kolejnym rozdziale.
+
+![Chirimoya](/img/IMG_awokado1383-kopia.jpg)
+
+### Wino i rum
+
+Wybór win w sklepach jest ogromny, pochodzą one jednak głównie z dużych okręgów winiarskich jak
+Rioja. W lokalnych sklepach znajdziemy jednak sporo win lokalnych, które pochodzą najczęściej z
+Alpuhary. Są to bardzo dobre trunki z rodzinnych winnic. Warto też odwiedzić jedną z winnic i wziąć
+udział w degustacji.
+
+Historia rumu wiąże się z uprawą trzciny cukrowej i produkcją cukru. Wytwarzano go tu przez około
+tysiąc lat. Podobnie jak z winem, wybór tego trunku jest duży, ale najciekawsze są lokalne produkty.
+Więcej w dalszych rozdziałach.
+
+Na Costa Tropical ma pięć ośrodków turystycznych: Almuñécar, Salobreña, Motril, Castell de Ferro i La
+Rábita
+
+### Motril
+
+Motril to miasto portowe oraz centrum administracyjne i gospodarcze Costa Tropical. Miasto położone
+jest na wzgórzu, u podnóża Sierra de Lújar, uważane jest za stolicę Wybrzeża Tropikalnego.
+
+![Chirimoya](/img/M_nadm.JPG)
 
 
-RECOMMENDED
 
-Salobreña guided Free Tours in Spanish and English.
-Invite you to a wonderful walk through the ancient Moorish castle of Salobreña and its old town where
-centuries ago the kings of the Alhambra themselves walked.
+Motril jest również dużym ośrodkiem turystycznym. Można powiedzieć, że składa się z dwóch głównych
+części, centrum miasta i nadmorskiej dzielnicy wypoczynkowej. Z punktu widzenia turystów lepiej jest
+mieszkać w tej drugiej części, nad morzem. Z kolei centrum miasta oferuje liczne sklepy, w tym centrum
+handlowe, targ miejski oraz dobrze rozwiniętą gastronomię. Tej ostatniej nie brakuje również nad
 
-More information:
+morzem. Odległość dzielnicy nadmorskiej od centrum wynosi około 3 do 5 kilometrów i można do niej
+dojechać autobusem. W dzielnicy nadmorskiej znajduje się też popularne pole golfowe.
+Centrum Motrila to typowe andaluzyjskie miasto średniej wielkości (60 tys mieszkańców). Jego ścisłe
+centrum jest typowym przykładem urbanistyki hiszpańsko-arabskiej. Znajdujący się tu kościół La
+Encarnación, wzniesiony w XVI wieku na miejscu dawnego głównego meczetu. Na uwagę zasługują
+również przykłady architektury barokowej, takie jak gmach ratusza oraz sanktuarium Virgen de la
+Cabeza, patronki miasta, które zostało wzniesione na miejscu dawnej rezydencji matki króla Boabdila w
+Motril, na wzgórzu z zaskakującymi widokami.
+Warto zobaczyć także port rybacki, odwiedzić miejskie targowisko. W centrum miasta znajduje się też
+duże centrum handlowe.
 
-https://costatropicaldogs.com/salobrena/
+Więcej:
+
+### Salobreña
+
+Jednym z ikonicznych widoków całej Andaluzji jest skaliste wzgórze wpuszczona niemal w morze ,
+oblepione białymi domkami z mauretańskim zamkiem na szczycie, to Salobreña.
+Salobreña to niewielkie miasteczko liczące sobie około 13 tys. stałych mieszkańców jest jednym z
+najpopularniejszych centrów wypoczynkowych na Costa Tropical.
+Nadmorska strefa wypoczynkowa nie jest ona wielka, sąsiaduje z podobnymi dzielnicami w Motrilu i
+Almeñecar. Nie znajdziemy tu wielkich hoteli, wieżowców, znanych choćby z Costa del Sol. Przeważają
+kameralne osiedla z dwupiętrowymi domami, blisko plaży oraz białe piętrowe domki zabudowane
+szeregowo w wewnętrznymi patiami. Jest tu wszędzie blisko. Wzdłuż wybrzeża biegnie promenada.
+
+![Chirimoya](/img/sal_kolor-kopia.jpg)
+
+Salobreña wywodzi się z czasów fenickich. Założona jako kolonia handlowa, była również zamieszkana
+przez Rzymian i Arabów, dopóki nie została odzyskana przez Królów Katolickich. Ataki piratów
+sprawiły, że miasto zostało otoczone murami, a jego mieszkańcy wybrali bezpieczniejsze miejsca w
+górach.
+
+![Chirimoya](/img/boveda.jpg)
+
+Imponującą skałę wieńczy arabski zamek z XIII wieku. Mury z kamienia i cegły, baszty i wieża dominują
+nad całą zabudową Salobreña. Ta budowla obronna została wzniesiona przez Rzymian, a rozbudowana
+przez Arabów. U stóp Wielkiej Skały, na której stoi, znajdują się ulice z bielonymi fasadami, tak
+typowymi dla tradycji muzułmańskiej. Inną ciekawą budowlą jest kościół parafialny Nuestra Señora del
+Rosario, zbudowany na starym meczecie w XVI wieku.
+Różne dzielnice miasteczka, takie jak La Loma, La Fuente, El Brocal czy Albaycín, mają średniowieczne
+zakątki, w których otwierają się bramy, sklepienia i okna. Spacer po tej okolicy pozwoli podróżnemu
+zorientować się, jak wyglądało miasto w czasach starożytnych.
+Kameralne plaże są bardzo zadbane i mają znakomitą infrastrukturę. Na obrzeżach miasta znajdziemy
+także bardziej dzikie plaże. Salobreña ma również wiele interesujących zatoczek. Naturalne zatoczki El
+
+Caleton lub El Pargo, do których można dojść pieszo, oferują krystalicznie czystą wodę i możliwość
+rekreacji, jak na przykład nurkowanie.
+
+### Almuñecar
+
+Almuñecar to największy kurort na wybrzeżu Costa. Znajduje się tu najbardziej rozbudowana
+infrastruktura. Almuñecar to jedno z najstarszych miast w basenie Morza Śródziemnego, przesiąknięte
+tradycjami, z bogatym dziedzictwem archeologicznym i zabytkowym.
+Fenicjanie założyli tu pierwszą osadę w 800 r. p.n.e., a Rzymianie nazwali ją Manaba Sexi Firman. Pod
+rządami muzułmanów nazwano ją Sexi Hin al-Murecab, co oznacza „fortecę na wzgórzu”. W 1489 r.
+miasto przypadło, po wygranej wojnie, katolickim monarchom.
+
+![Chirimoya](/img/Alm_plaza2-kopia.jpg)
+
+
+![Chirimoya](/img/Alm_zamek-kopia.jpg)
+
+Miasto oferuje sporo atrakcji historycznych i przyrodniczych.
+
+Castillo San Miguel to kompleks pałacowy z Muzeum Archeologicznym zbudowany przez Fenicjan,
+przebudowany i używany jako forteca przez Rzymian, a następnie przejęty przez Arabów z dynastii
+Nasrydów, który stał się również ich miejscem pochówku. Podczas wojny o niepodległość z Francją
+zamek został zrujnowany i wykorzystany jako cmentarz. W XVIII wieku zamek został odbudowany i dziś
+mieści się w nim muzeum miasta Almuñecar.
+
+Akwedukt i łaźnie rzymskie są najstarszymi i najlepiej zachowanymi tego typu obiektami w Andaluzji.
+Akwedukt rzymski miał 7 kilometrów długości i służył do dostarczania wody do miasta. Obecnie
+akwedukt składa się z pięciu części, z których najdłuższa ma 130 metrów długości i 17 łuków i znajduje
+się w Torrecuevas.
+
+Kościół Wcielenia został zbudowany pod koniec XVI wieku. Jest to pierwszy kościół w prowincji
+Granada, który został zbudowany w stylu mudejar, najbardziej charakterystycznym dla regionu Andaluzji
+na przełomie średniowiecza i renesansu. Jego fundamenty znajdują się na szczycie rzymskiego zbiornika
+wodnego. Podczas budowy kościoła znaleziono kilka grobowców pochodzenia fenickiego z II wieku
+p.n.e.
+
+Palacio la Najarra to budynek w stylu neoarabskim, wzorowany na tradycyjnym arabskim domku
+ogrodowym. Został zbudowany w połowie XIX wieku obok dawnej cukrowni. Zjawiskowy wygląd
+Palacio la Najarra nadają kafelkowe dekoracje w oknach i na podłogach oraz freski na ścianach wewnątrz
+budynku. Pałac otoczony jest ogrodem, w którym rosną cyprysy i palmy. Obecnie jest siedzibą
+Miejskiego Zarządu Turystyki i Miejskiego Biura Informacji Turystycznej.
