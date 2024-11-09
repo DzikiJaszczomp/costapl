@@ -1,187 +1,196 @@
 
 ---
-title: "From Costa Tropical for a day"
+title: "SIERRA NEVADA i COSTA TROPICAL"
 subtitle: ""
 date: 2023-12-02T13:49:50+10:00
 images: [""]
 tags: ""
 draft: false
 ---
-Interesting places:
+Narty i plaża jednego dnia
 
- **Guadix, Geopark Granada**
+***Sierra Nevada i Costa Tropical***
+**Narty i plaża w jeden dzień? Tak, to możliwe**
 
-  **Caminito del Rey**
+Zapraszamy do Salobreny na Costa Tropical w hiszpańskiej Andaluzji, 90 km od Malagi. Stąd
+mamy 90 km do gór Sierra Nevada do najbardziej wysuniętego na południe ośrodka narciarskiego
+w Europie.
+Mieszkamy nad morzem, a na narty dojeżdżamy wynajętym samochodem lub zorganizowanym
+transferem. Na Costa Tropical panuje klimat subtropikalny. Ośrodek Sierra Nevada ma ponad 100
+km tras narciarskich.
 
- # Guadix, Geopark Granada 
+Dla kogo przeznaczona jest ta oferta?
+Nie jest to najlepsza opcja dla osób, które lubią mieszkać przy stoku i poświęcać cały swój czas na
+jazdę na nartach. Będąc pasjonatami tego sportu, nie chcą tracić czasu na nic innego.
+Jest to opcja dla narciarzy, którzy lubią również jeździć na nartach od baru do baru, podziwiając
+widoki i wygrzewając się na słońcu. Ciesząc się morzem w wyjątkowo pięknym miejscu, poznając
+coś nowego, idąc wieczorem na tapas w mieście lub siedząc z winem na tarasie.
 
-60 km from Granada, 140 km from Salobreńa and Motril
-Guadix, a small Andalusian town (around 25,000 inhabitants) is a well-known tourist destination. Tourists
-are attracted by the charm of the historic town, but the town's best-known attraction is the inhabited
-district of houses carved into the rocks. The city lies at the foot of the Granada Geopark, famous for its
-unique nature and extraordinary views. The Sierra Nevada mountains, a short distance from the city, also
-provide a beautiful panorama.
+Ośrodek narciarski Sierra Nevada
+Duży, nowoczesny ośrodek narciarski, oferujący ponad 100 km tras. Bardzo ciekawie położony,
+zaledwie kilkadziesiąt km od wybrzeża M. Śródziemnego, widać morze i wybrzeże Afryki.
+Najdalej na południe położony ośrodek narciarski, bodaj w calej Europie. Góry Sierra Nevada to
+trzytysięczniki.
+Klimat alpejski, ale z hiszpańskim smaczkiem. Bardzo dobra infrastruktura. Karnet 6-dniowy
+kosztuje ok. 250 euro, wypożyczenie sprzętu ok. 90 euro na tydzień. Ceny na stokach i w
+ośrodkach, podobne jak w Alpach.
+Początek sezonu: 30 listopada, koniec – najprawdopodobniej ostatnie dni kwietnia.
+Oficjalna strona: https://sierranevada.es/en/
+Przylot
+Na lotnisko w Maladze. Jest bardzo dużo połączeń z Polski: Gdańsk, Poznań, Warszawa, Łódź,
+Wrocław, Kraków. Bezpośrednie połączenia mają Ryanair oraz Wizzair. Lot trwa ok. 3,5 godz. Bilet
+w obie strony (z podręcznym bagażem) kosztuje od ok. 400 do ok. 900 zł w zależności od miejsca,
 
-![This is an image](/img/Guad-panor-kopia.jpg)
+daty i z jakim wyprzedzeniem jest kupowany. Obiema liniami można przewieźć sprzęt narciarski za
+dodatkową opłatą.
+Costa Tropical. Salobreña
 
-Guadix panorama
+Jest to opcja, w której mieszkamy nad morzem i dojeżdżamy do ośrodka narciarskiego (95 km, 1
+godz. 15 min). Oferujemy zakwaterowanie na najcieplejszym wybrzeżu Hiszpanii z klimatem
+subtropikalnym. Temperatura w zimie wynosi około 20 stopni i jest słonecznie. Zimą jest sezon na
+lokalne owoce tropikalne.
+Jeśli nie możesz się zdecydować, czy zimą pojechać w Alpy, czy w ciepłe miejsce, tutaj masz 2 w
+jednym.
+Salobreña
+Poczytaj o mieście na tym portalu:
+https://hiszpaniadlawas.pl/senderismo/
 
-Guadix 
+**Gdzie będziemy mieszkać?**
+Jeśli chodzi o zakwaterowanie, nasi partnerzy to najlepsze obiekty w mieście. Posiadają oficjalny
+certyfikat najwyższej jakości przyznawany corocznie przez miasto Salobrena.
 
-is one of the oldest human settlements in Spain. It was an important Roman colony, called Julia
-Gemella Acci, and one of the first Christian dioceses in Spain.
-Under Muslim rule, the city acquired the Arab urban layout, which still prevails in some streets. In the
-11th and 12th centuries, Wadi Acci became together with Baza, one of the most flourishing taifas (small
-kingdoms) in Al-Andalus, which disappeared due to the fundamentalist Almohad movement.
-The famous writer Pedro Antonio de Alarcon was born in Guadix in 1833. Two of his works were related
-to this town: El Niño de la Bola and El Sombrero de Tres Picos. There is a statue of Pedro in the main
-square. The Palacio de Marqueses de Peñaflor has a room dedicated to the writer.
+Mieszkania w hotelu Avenida Tropical
+Duże, komfortowe mieszkania położone 10 minut spacerem od plaży i 5 minut od centrum miasta.
+Polecamy je dla rodzin i grup przyjaciół.
+https://hotelavenidatropical.com/
 
-![guadixautumn](/img/Guadjesien-kopia.jpg)
+San Juan Boutique Hotel
+Niewielki, stylowy hotel (hostel według hiszpańskiej nomenklatury). Najlepszy obiekt tego typu w
+mieście. Hotel jest dogodnie położony w centrum Salobreny, 15 minut spacerem od plaży. Można
+porozumieć się w języku angielskim, hiszpańskim, francuskim i polskim.
+Hotel szczególnie polecany dla osób podróżujących samotnie i par.
+https://www.hostalsanjuan.com/
 
-*In Guadix we will see, among others:*
+Oferujemy również starannie wyselekcjonowane mieszkania wynajmowane od prywatnych
+właścicieli.
+Sam zdecyduj, gdzie chcesz się zatrzymać.
 
-The cathedral 
+NAJNOWSZE INFORMACJE NA STRONIE:
+https://www.facebook.com/profile.php?id=100090118508373
 
-underwent a complex construction process beginning in the 16th century and ending in the 18th century. It
-was built on the site of the great mosque and is a blend of the Gothic, Renaissance and Baroque styles.
-The end result of Guadix Cathedral is a church with a nave and two aisles on a Gothic quasi-basilica floor
-plan, with a beautiful ambulatory and numerous side chapels. It has three façades, with the main one
-being dedicated to the Incarnation.
+OFERTY
+Narty, góry, morze i plaża
+Wszystko w tym samym czasie
 
-It comprises no less than 47 oil paintings on canvas dating from the 17th and 18th centuries.
+Jest to opcja w której mieszkamy nad morzem i dojeżdżamy (ok. 85 km, 1h.15 min)) do ośrodka
+narciarskiego. Proponujemy noclegi na najcieplejszym wybrzeżu Hiszpanii z klimatem
+subtropikalnym. Temperatura zimą to ok. 20 stopni i jest słonecznie. Zimą jest sezon na miejscowe
+owoce tropikalne.
+Jeśli nie mogą Państwo się zdecydować, czy zimą jechać w Alpy, czy w jakieś ciepłe miejsce, to tu
+mają Państwo 2 w jednym.
 
-![This is an image](/img/kat-kopia.jpg)
+Opcja I
+optymalna dla rodziny i grupy wspólnie podróżującej
+Przylatuję do Malagi, odbieram zarezerwowany samochód z wypożyczalnia na lotnisku. Jadę do
+Salobrena na Costa Tropical (100 km). Mieszkam w apartamencie nad morzem, czteroosobowym.
+Dojeżdżam na narty w Sierr Nevada (95 km, z czego 60 autostradą) tyle razy, ile chcę. Zostają tak
+długo, jak chcę. Na miejscu mam opiekę rezydenta, wspólny wyjazd do ośrodka, lokalną wycieczkę
+i rekonesans po mieście. Apartament mam już zarezerwowany wcześniej, samochód też.
+Cena za 7 dni/nocy – 600 euro dla całej grupy do 4 osób w apartamencie
+Zdecydowana większość opłat (za wyjątkiem niezbędnych zaliczek rezerwacyjnych) już na
+miejscu.
+Jakie jeszcze wydatki mnie czekają:
+przelot – ok. 100 - 150 euro w obie strony
+wypożyczenie samochodu z pełnym ubezpieczeniem i bez kaucji – 150-200 euro
+paliwo – ok. 100 euro
+parkingi – ok. 60 euro
+karnet – ok. 55 euro za dzień, kilkudniowy nieco taniej
+wypożyczenie sprzętu – ok. 100 euro, przewóz własnego samolotem – ok. 20 euro
+wydatki codzienne:
+ceny w sklepach podobne do polskich, śniadanie w barze ok 3 euro, zestaw obiadowy – 10-15 euro,
+tapas: napój (wino, piwo, sok, cola) napój plus przekąska (mini danie) - ok. 3 euro, kawa – 1,5-2,5
 
-Alcazaba:
-Historic monument built in the 11th century, it is the best example of Moorish culture in Guadix. The
+euro.
+Terminy: od połowy stycznia do początków kwietnia
+Od czego zacząć?
+Proszę skontaktować się ze mną, podać orientacyjną datę przylotu, miejsce wylotu, liczbę osób oraz
+na jak długo chcę przylecieć. Wybierzemy lot, odpowiedni apartament i samochód.
+Allpress.piotr.janczarek@gmail.com
 
-Seminary:
-founded in 1595, one of the oldest in Spain. The Seminary is built around two courtyards. The Palace of
-Peñaflor ( 17th and 18th centuries ) it shows how some noble families left their mark on the city. It has a
-central courtyard and a magnificent balcony.
+Opcja II
+Dla tych co wolą podróżować w grupie i mieć wszystko zorganizowane.
+7 dni/nocy
+Przylatujemy do Malagi, z lotniska zabieramy Państwa do Salobrena na Costa Tropical (100 km).
+Mieszkamy w apartamencie nad morzem, hotelu, pensjonacie – dobierzemy indywidualnie według
+potrzeb.
+Przez 4 dni dojeżdżamy na narty w Sierra Nevada (95 km, z czego 60 autostradą) zorganizowanym
+transferem.
+2 dni odpoczywamy na plaży, zwiedzamy Salobrenę – białe miasto, zamek. Degustujemy
+miejscowe owoce tropikalne i wino. Jest też możliwość zorganizowania wycieczki do Granady (30
+euro plus 20 euro bilet do Alhambry).
+Ostatniego dnia wyjeżdżamy zorganizowanym transferem na lotnisko w Maladze.
+Koszt pakietu (zakwaterowanie, transfery, wyjazdy na narty, lokalne wycieczki):
+od 400 do 550 euro od osoby w zależności od wybranego miejsca zamieszkania, a także od
+liczebności grupy.
+Większość płatności (poza zaliczkami rezerwacyjnymi) jest na miejscu.
 
-Barrio de Santa Ana: a very important area in the Islamic period, it was an independant suburb of the
-Medina. As is often the case, the church is in the centre of the district.
+Terminy
+Poniższe daty możemy korygować stosownie do potrzeb, zwłaszcza lotów w dogodnym terminie i
+cenie. Dobieramy terminy indywidualnie, ale tak, aby mieściły się w określonym przedziale
+czasowym, czyli Państwa ferii, urlopów, etc.
+Propozycje:
+20-27 stycznia (poniedziałek-poniedziałek) – wylot z Katowic (Wizzair)
+22-29 stycznia (środa-środa)
+1-8 lutego (sobota-sobota) – Ryanair – wylot z Łodzi,
+3-10 lutego – Wizzair z Wrocławia
+17-24 lutego – Wizzair z Katowic
 
-![This is an image](/img/Guad-panor-kopia.jpg)
+19-26 lutego (środa-środa)
+24 luty – 3 marca, Ryanair, Łódź
+5-12 marca (środa – środa)
+14-21 marca (pt.-pt)
+26 marca – 2 kwietnia (śr.-śr.)
 
-Barrio de Cuevas
-The local Guadix environment has left its mark on the way of life of the local population, forcing them to
-construct a peculiar type of family and communal dwelling: caves.The exact date when the caves began to
-be used as a living space is unknown, but it is presumed to be some time after the Islamic period.
-Construction was in full swing by the first half of the 16th century.
-At the present there are around 2000 caves, inhabited by some 3000 people, the largest cave complex in
-Europe.
+Od czego zacząć?
+Proszę skontaktować się ze mną, podać datę, liczbę osób oraz preferowany rodzaj zakwaterowania.
+To niezobowiązujące.
+Allpress.piotr.janczarek@gmail.com
 
-![Cuevas](/img/cuevas-kopia.jpg)
+Opcja III
+Rano i po południu narty, wieczorem Granada
+8 dni, 7 nocy
+Przylatuję na lotnisko w Maladze. Bezpośrednio lotniska jadę autobusem (ok. 1,5 h) do Granady.
+Tu czeka na mnie rezydent. Mam już zarezerwowany pensjonat w samym centrum i bilety
+autobusowe. Pierwszego dnia jadę z rezydentem do ośrodka narciarskiego, specjalnym autobusem
+(ok. 50 min.). W kolejne dni podróżuję do ośrodka już sam. Jeżdżę na narty tyle razy, ile chcę i
+przyjeżdżam do Granady na jak długo chcę. Możemy też zarezerwować bilet do Alhambry i
+pokazać miasto.
+Koszt na 7 dni/nocy
+ok. 290 euro od osoby, w cenie są bilety autobusowe.
+do tego dochodzi:
+przelot
+dojazdy skibusem do ośrodka narciarskiego – 9 euro w obie strony jednego dnia
+bilet do Alhambry (fakultatywnie) – 20 euro
+karnet narciarski – 55 euro dzienni, kilkudniowy wychodzi nieco taniej
+Jeśli konieczny byłby transfer z lotniska lub na lotnisku (późna pora przylotu, itp.) koszt wzrasta o
+ok. 20 euro (osoba) w jedną stronę.
+Termin dowolny: od początku grudnia do kwietnia.
+Od czego zacząć?
+Proszę skontaktować się ze mną, podać orientacyjną datę przylotu, miejsce wylotu, liczbę osób oraz
+na jak długo chcę przylecieć. Wybierzemy lot, odpowiedni pensjonat, kupimy bilety na autobus z i
+do Malagi.
+Allpress.piotr.janczarek@gmail.com
 
-## The Granada Geopark
-
-![Geoie](/img/geoIE-kopia.jpg)
-
-The Granada Geopark, declared a World Geopark by UNESCO in 2020, has 4,722 km2 of 47
-municipalities belonging to the regions of Guadix, Baza, Huéscar and Montes, it extends over an
-exceptional territory in the central sector of the Betic Cordillera surrounded by some of the highest
-mountains in the Iberian Peninsula, such as the Sierra de la Sagra or Sierra Nevada.
-Here we find most unique landscapes: a semi-desert featuring a succession of tens of thousands of gullies
-and badlands surrounded by mountains and the peaks of the Sierra Nevada. The Granada Geopark is one
-of the few natural deserts in Europe.
-
-![Cuevas](/img/geopgory-kopia.jpg)
-
-After tens of millions of years spent forming part of ancient seas, the land emerged and was transformed
-into a huge enclosed depression surrounded by mountains. A dense network of streams and wadis
-collected the rainwater, which, with no outlet to the sea, accumulated in a lake that was located towards
-the area of Baza. This process continued for hundreds of thousands of years and the great depression
-slowly filled in with sediments in the form of layers of sand, silt and clay, and gypsum.
-
-![Cuevas](/img/S-geo2.JPG)
-
-The Granada Geopark offers a journey to the Quaternary period and to Prehistory, where you can learn
-about extinct fauna, the first hominids to reach Europe and the environment in which they lived, visit an
-exceptional concentration of dolmens from 5,000 years ago,
-The Granada Geopark has more than 70 sites of geological interest. In addition, there are iconic
-landscapes that simply must be visited, such as the Mirador del Fin del Mundo, the viewpoints of Marchal
-and Purullena, and Los Coloraos.
-
-A great experience is an hour-long cruise in a heated air balloon. The balloons take off from Guadix, the
-hour-long cruise takes place over the town and the Geopark.
-
-![Cuevas](/img/balony1-kopia.jpg)
-![Cuevas](/img/balony2-kopia.jpg)
-
-**Our tours**
-
-We propose private excursions to see the sites described above, namely the Old Town of Guadix, the rock
-house district and the Granada Geopark. Those who wish will be able to take a balloon flight. Excursion
-The Geopark Granada, Guadix
-Distance round trip – 300 km. Group: 4 persons 
-
-Details:
-https://www.facebook.com/profile.php?id=61555252727786
-
-Program
-Departure (pick-up Motril, Salobreńa, Almuńecar) – 9.00 Granada Geopark - the Mirador del Fin del
-Mundo, the viewpoints. (about 1 hour) A trip to the big city market. It is organised on Saturdays.
-Shopping opportunity. Walk and visit the house-cave district. (about 1,5 hour). Walking city tour. Visit
-cathedral, Roman ruins, Moorish castle, old town. (about 2 hours) Free time (1 hour) Lunch break – time
-to be agreed.
-
-The activity consists of the balloon flight and includes a local breakfast and a souvenir certificate.
-This flight takes place in a spectacular landscape conquering heights above 2,000 meters or with low
-flights. With Sierra Nevada as a backdrop, the tour allows you to admire the cathedral of Guadix, citadel
-and the neighbourhoods of the cave houses. Program Departure (pick-up Motril, Salobreńa, Almuńecar) –
-6.30
-
-## **Caminito del Rey**
-
-Caminito del Rey, excursions, Malaga, Andalusia
-
-***The most spectacular routes in the world!***
-
-The Caminito route is spectacular from beginning to end, the scenery is breathtaking and unforgettable.
-
-The path is approximately 8 kilometers long and takes roughly 3 hours to complete. It is not for the faint-
-hearted and is not a tour for people who have issues with height.
-
-This almost 8-kilometre path near Malaga (Andalusia) was once considered one of the most dangerous in
-the world. Today the entire route has been carefully restored, but although it's now much safer, one thing
-hasn't changed - the unique experience of strolling along walkways hanging over 100 metres up on a sheer
-cliff face.
-The Caminito del Rey running through cliffs, canyons, and a large valley. It crosses the landscapes of
-Desfiladero de los Gaitanes, a gorge carved out by the river Guadalhorce, with walls 700 metres high. The
-area is also inhabited by a wide variety of plant and animal species; with a little luck, you can see
-highland birds like Egyptian vultures, griffon vultures, or golden eagles, and mammals such as wild boar
-and Iberian ibex.
-
-Official website:
-
-https://www.caminitodelrey.info/en
-
-
-
-![Cuevas](/img/Caminito_del_Rey_4.jpeg)
-![Cuevas](/img/caminitodelrey-kopia.jpg)
-
-caminito
-
-photos: Andalusian.org
-
-**Excursions**
-
-Join us for a walk through the mountains through the unique king's little pathway along the steep wall of
-the narrow gorge of El Chorro.
-3 hr 30 min, cost 59,50 EUR
-Included:
-* Pick-up & Drop off with private transportation.
-* Excursion Manager
-* Entry to the Caminito Del Rey
-Excursion pick-up locations: Motri-Salobrena-Amunecar-La Herradura-Nerja-Torrox. ( We will contact
-you to arrange your nearest pick-up location).
-
-https://www.andalusianexcursions.com/
-
-![Cuevas](/img/cam-exc.jpeg)
-
-photo: Andalusian Excursions
+Loty z Polski do Malagi i z Malagi do Polski
+Ryanair
+Gdańsk – środa, niedziela
+Kraków – wtorek, czw, pt, sob, ndz
+Łódź- pon. śr, sob od lutego (styczeń: pon-sob)
+Poznań – śr, pt, niedz.
+Warszawa – pon. sob.
+Wrocław – wtorek, śr, czw. sob. niedz.
+Wizzair
+Gdańsk – pon. śr. pt
+Katowice – pon. wt. czwartek, pt. sob.
+Warszawa – wszystkie dni tygodnia
+Wrocław – pon, pt.
